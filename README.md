@@ -1,1 +1,0 @@
-# kakeibo_st14d07
